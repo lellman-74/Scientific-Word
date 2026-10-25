@@ -213,4 +213,4 @@ Scientific Word is offered as a full free version with all features and updates 
 Unlock your scientific writing potential today! Download Scientific Word for free and experience the difference.
 
 ---
-**Last updated:** 2026-10-25 09:42:19 UTC
+**Last updated:** 2026-10-25 14:13:48 UTC
